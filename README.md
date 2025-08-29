@@ -1,8 +1,8 @@
-<p align="center">  <img src=https://watermelon.crd.co/assets/images/gallery16/94e66d5a.gif? height=30 width=300> 
-<dir="auto"> <img src="https://komarev.com/ghpvc/?username=clovxers&label=౨ৎ&color=704d38&style=plastic"> </dir> <img src=https://watermelon.crd.co/assets/images/gallery16/94e66d5a.gif? height=30 width=300> 
-
-<p align="center"> <img src=https://file.garden/Zy7nsVKnFHAuCMhW/gifs/g86 height=300 width=200> </p>
-
+<p align="center"> <dir="auto"> <img src="https://komarev.com/ghpvc/?username=clovxers&label=౨ৎ&color=000000&style=plastic"> </dir> </p>
+<p align="center"> <img src=https://watermelon.crd.co/assets/images/gallery16/4b2d52cb.gif height=40 width=600>
+<p align="center"> <img src=https://i.pinimg.com/736x/63/c5/cf/63c5cfe12e9df33cf4e731e33be471e6.jpg height=500 width=500> </p>
+<p align="center"> me and illi btw ˆᗜˆ </p>
+<p align="center"> <img src=https://watermelon.crd.co/assets/images/gallery05/670f3710.gif?v=e2e5e274>
 <p align="center"> <a href="https://docs.google.com/document/d/1PZBPPCn5mdzmKCY0bvNtKniAR_rKWLjFJCnQf0ii8yg/edit?tab=t.0#heading=h.82xbbxe3ptzo">expose</a> 🦴 </p>
 
   
