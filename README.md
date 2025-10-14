@@ -1,5 +1,5 @@
 <p align="center"> <dir="auto"> <img src="https://komarev.com/ghpvc/?username=clovxers&label=:3&color=022D73&style=plastic"> </dir> </p>
-  <p align="center"> <img src=https://media.discordapp.net/attachments/1427469627188969627/1427470537864511528/Untitled198_20251013213803.png?ex=68eefb09&is=68eda989&hm=825444b60bb4a022826a47c6ee494ef8299174734f75772a288cf0aad705a6b5&=&format=webp&quality=lossless&width=579&height=783>
+  <p align="center"> <img src=https://i.postimg.cc/6px2W1Ww/Untitled198-20251013213803.webp>
 <p align="center"> <ins> #1 </ins>	ryan ross + 𝘤𝘢𝘳𝘭 𝘨𝘳𝘪𝘮𝘦𝘴 fanboy :P </p>
    <p align="center"> <a href="https://thepetewentzz.straw.page/">strawpage</a> ⸝⸝ <a href="https://flvttrdsh.atabook.org/">ata</a> ⌖ <a href="https://rentry.co/mych3mz">rentry</a>
   <div>
