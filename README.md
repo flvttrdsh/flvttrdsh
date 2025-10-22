@@ -1,4 +1,4 @@
-<p align="center"> <dir="auto"> <img src="https://komarev.com/ghpvc/?username=flvttrdsh&label=:3&color=C02A4A&style=plastic"> </dir> </p>
+<p align="center"> <dir="auto"> <img src="https://komarev.com/ghpvc/?username=flvttrdsh&label=:p&color=C02A4A&style=plastic"> </dir> </p>
 
 
 <p align="center"> 2 lazy 2 finish editing. k thx bye </p>
