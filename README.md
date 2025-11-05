@@ -1,4 +1,4 @@
-<p align="center"> <dir="auto"> <img src="https://komarev.com/ghpvc/?username=flvttrdsh&label=:p&color=C4CAE2&style=plastic"> </dir> </p>
+<p align="center"> <dir="auto"> <img src="https://komarev.com/ghpvc/?username=flvttrdsh&label=:p&color=000000&style=plastic"> </dir> </p>
 
 
 <p align="center"> 2 lazy 2 finish editing. #idgaf </p>
