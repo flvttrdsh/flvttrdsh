@@ -1,5 +1,5 @@
 <p align="center"> <img src="https://64.media.tumblr.com/77a52380218a4c03e337b1db20a5c896/15436c37e3fbea82-85/s640x960/c5d96a1495aa0c0e4108837e16228854c53e90cd.pnj" width=500 height=400> </p>
-<p align="center"> <dir="auto"> <img src="https://komarev.com/ghpvc/?username=vxmpzi3ro&label=ffags&color=000000&style=plastic&base=500"> </dir> </p>
+<p align="center"> <dir="auto"> <img src="https://komarev.com/ghpvc/?username=vxmpzi3ro&label=₊⊹&color=000000&style=plastic"> </dir> </p>
 
 <p align="center"> <img src="https://i.postimg.cc/HLM3Lgq6/e18-ks.png" width=450 height=600> </p>
 
