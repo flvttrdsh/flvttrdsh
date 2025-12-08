@@ -3,7 +3,7 @@
 
 <p align="center"> <img src="https://i.postimg.cc/HLM3Lgq6/e18-ks.png" width=450 height=600> </p>
 
-  <p align="center"> <a href="https://vxmpzi3ro.atabook.org/">⛧</a>ㅤ <a href="https://rentry.co/mych3mz">♱</a>ㅤ <a href="https://en.pronouns.page/@vxmpzi3ro">𑣲</a>ㅤ <a href="https://thepetewentzz.straw.page/">⟡</a> </p>
+  <p align="center"> <a href="https://vxmpzi3ro.atabook.org/">⛧</a>ㅤ <a href="https://rentry.co/mych3mz">♱</a>ㅤ <a href="https://en.pronouns.page/@vxmpzi3ro">𝄞</a> </p>
                                       
 <p align="center" dir="auto"> <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31dnbrq33dernxlkwbvsoee7w6py&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&bar_color=f4f2ec&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)" height="60" width="250"> </p>
 
